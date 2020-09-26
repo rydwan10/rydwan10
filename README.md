@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there 👋 Rydwan Here 😁🤘 
+## "I do code but sometimes do the app design too ✨"
+
 
 <!--
 **rydwan10/rydwan10** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
