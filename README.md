@@ -1,4 +1,4 @@
-### Hi there 👋 Rydwan Here 😁🤘 
+### Hi there 👋 Muhammad Rydwan Here
 ## "I do code but sometimes do the app design too ✨"
 
 
